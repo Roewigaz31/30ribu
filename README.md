@@ -1,0 +1,2 @@
+# 30ribu
+GitHub Pages
